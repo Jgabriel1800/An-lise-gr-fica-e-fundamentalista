@@ -1,0 +1,1 @@
+# An-lise-gr-fica-e-fundamentalista
